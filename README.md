@@ -1,1 +1,1 @@
-Vechnite zakoni sazdadeni ot bog
+Vechnite zakoni sazdadeni ot BOG
